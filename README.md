@@ -10,3 +10,4 @@ dari hal diatas, kami dan kita punya kehidupan yg sama, dibumi di planet ini kot
 file ini dibuat untuk memenuhi tugas membuat sebuah pernyataan sebab akibat
 
 dan bgtu
+adapaun lain hal kami tidak dapat berikan disini
